@@ -1,1 +1,1 @@
-# AnotherStar资源仓库
+#AnotherStar资源仓库
